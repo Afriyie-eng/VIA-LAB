@@ -3,7 +3,7 @@
 
 
 Submitted by:
-Name...
+Afriyie Adwoa Adoma
 
 
 ## Table of Contents
